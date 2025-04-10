@@ -12,7 +12,7 @@
 |7.|Weekend (Quickdrop Remix Extended)|Marc Korn, Semitoo & Quickdrop feat. Renee|			5:10|
 |8.|Blow The Speakers				|DJ. Phunk feat. Maikki		|4:30|
 |9.|Easy On My Heart (Gabry Ponte VIP MIX)|	Gabry Ponte|			5:49|
-|10.|Wings (Radio Edit)				|Technikore & Suae		|6:00|
+|10.|[Wings (Radio Edit)](https://youtu.be/gH3MJg6ZXYQ?si=NhC1uU1KDxJcS7qp)|Technikore & Suae		|6:00|
 |11.|	Take Me Up|					Kanine|				5:53|
 |12.|Desire					|Calvin Harris & Sam Smith	|5:14|
 |13.|	Shooting Darts|	Dimitri Vegas & Like Mike with R3HAB & Prezioso|	2:32|
