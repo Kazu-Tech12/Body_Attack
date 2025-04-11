@@ -3,19 +3,19 @@
 ## Body Attack 123
 ||Music|Artist|Time|
 |----|----|----|----|
-|1.|Overtime|James Flake|4:01|
-|2.|Padam Padam (Electro House Mix)|Power Music|4:34|
-|3.|Dancing’s Done (Handz Up Remix)|Power Music|5:27|
-|4.|DJ Turn It Up|Dimension|5:24|
-|5.|Rave Workout|STVW × DJ Junior	|5:03|
-|6.|JUMP In|Knock2			|5:22|  
-|7.|Weekend (Quickdrop Remix Extended)|Marc Korn, Semitoo & Quickdrop feat. Renee|			5:10|
-|8.|Blow The Speakers				|DJ. Phunk feat. Maikki		|4:30|
-|9.|Easy On My Heart (Gabry Ponte VIP MIX)|	Gabry Ponte|			5:49|
+|1.|[Overtime]|James Flake|4:01|
+|2.|<a href="https://youtu.be/-LK27SmwRl0?si=EKQxjIpI6XcuuMPh" target="_blank" rel="noopener noreferrer">Padam Padam (Electro House Mix)</a>|Power Music|4:34|
+|3.|[Dancing’s Done (Handz Up Remix)](https://youtu.be/VOnxEhXQqog?si=3yzoxoQ7GKZleKTM)]|Power Music|5:27|
+|4.|[DJ Turn It Up](https://youtu.be/qj-1nprw12E?si=7QmimIEp1lEMDMGM)|Dimension|5:24|
+|5.|[Rave Workout](https://youtu.be/u0hCCOktnvU?si=WDk08sS0x-H48ksM)|STVW × DJ Junior	|5:03|
+|6.|[JUMP In](https://youtu.be/AH10Mxlc5Fk?si=59LH51Of9nQBHSu4)|Knock2			|5:22|  
+|7.|[Weekend (Quickdrop Remix Extended)](https://youtu.be/S3XE-MZhgIA?si=6UoUQTSBrQTteZIX)|Marc Korn, Semitoo & Quickdrop feat. Renee|			5:10|
+|8.|[Blow The Speakers](https://youtu.be/AlVDjsWP1g4?si=ytBwdIIqBa_VA7T4)				|DJ. Phunk feat. Maikki		|4:30|
+|9.|[Easy On My Heart (Gabry Ponte VIP MIX)](https://youtu.be/GnOKLusiGB4?si=6u6uXaGdhLoFFs43)|	Gabry Ponte|			5:49|
 |10.|[Wings (Radio Edit)](https://youtu.be/gH3MJg6ZXYQ?si=NhC1uU1KDxJcS7qp)|Technikore & Suae		|6:00|
-|11.|	Take Me Up|					Kanine|				5:53|
-|12.|Desire					|Calvin Harris & Sam Smith	|5:14|
-|13.|	Shooting Darts|	Dimitri Vegas & Like Mike with R3HAB & Prezioso|	2:32|
+|11.|[Take Me Up](https://youtu.be/62pgLr8qdC0?si=1o-xybl00AVHnzi3)|					Kanine|				5:53|
+|12.|[Desire](https://youtu.be/1JPNFp0f53I?si=T1o89YSjUjtyuP6B)|Calvin Harris & Sam Smith	|5:14|
+|13.|[Shooting Darts](https://youtu.be/RbEi1zCv6d0?si=DazhGqM0nJ6IuXm-)|	Dimitri Vegas & Like Mike with R3HAB & Prezioso|	2:32|
 ---
 ## Body Attack 124
 ||Music|Artist|Time|
