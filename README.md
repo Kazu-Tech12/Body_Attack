@@ -68,16 +68,16 @@
 ---
 ## Body Attack 127
 ||Music|Artist|Time|
-|----|----|----|----|
-|1.|Couldn’t Care Less|			ALTEGO feat. Gia Koka|			3:50|
-|2.|BASS DOWN LOW|			Lupage|					4:00|
-|3.|HOT TO GO! (Electro Remix)|		Power Music|				4:50|
-|4.|Techno Is Back|				Reel To Roller|				5:52|
-|5.|Get Ur Freak On|			Yvvan Back & Simon Fava|			5:33|
-|6.|Chase The Sun|				Technikore|				4:29|
-|7.|Nobody Likes The Records That I Play|	X.L.S|					5:28|
-|8.|Heaven (Million Miles Extended Rework)|	Da Tweekaz & HALIENE|			5:04|
-|9.|Silence 2024|				Mike Reverie × Matty Metrix|		6:03|
-|10.|LOOKING FOR JOY|			Kaleena Zanders|				4:13|
-|11.|Achterbahn (MADIZIN Remix)| 		Halene Fischer|				3:27|
+|----|----|----|----|   
+|1.|[Couldn’t Care Less](https://youtu.be/UjlxoAdADXc?si=9-xnZWrQorKq960C)|			ALTEGO feat. Gia Koka|			3:50|
+|2.|[BASS DOWN LOW](https://youtu.be/VeajJuxWOYw?si=WYhTthTHP5KdVUe3)|			Lupage|					4:00|
+|3.|[HOT TO GO! (Electro Remix)](https://youtu.be/2lemXt6oucc?si=f8JX9lyq63YUQWHA)|		Power Music|				4:50|
+|4.|[Techno Is Back](https://youtu.be/00WOxO_jsH8?si=F6-AAz15ibdp8sqb)|				Reel To Roller|				5:52|
+|5.|[Get Ur Freak On](https://youtu.be/FPoKiGQzbSQ?si=A8-YmV6Sb4LuOzJX)|			Yvvan Back & Simon Fava|			5:33|
+|6.|[Chase The Sun](https://youtu.be/w7Ij8Xf9p7c?si=nuJupot-_QaZnK5f)|				Technikore|				4:29|
+|7.|[Nobody Likes The Records That I Play](https://youtu.be/U-IuKJkgass?si=5Xz_jMVtmHh9i3wT)|	X.L.S|					5:28|
+|8.|[Heaven (Million Miles Extended Rework)](https://youtu.be/xejcE0WRBno?si=9t2NfWBFTM7_6dZc)|	Da Tweekaz & HALIENE|			5:04|
+|9.|[Silence 2024](https://youtu.be/cKVkV7HctfU?si=Vc07QZdY-HADu_sG)|				Mike Reverie × Matty Metrix|		6:03|
+|10.|[LOOKING FOR JOY](https://youtu.be/cNOM7s_Js0s?si=VQVG7T2pPmzGEiI0)|			Kaleena Zanders|				4:13|
+|11.|[Achterbahn (MADIZIN Remix)](https://youtu.be/JfwjsjBcDoU?si=EqwanptVdVhGRIkw)| 		Halene Fischer|				3:27|
 
